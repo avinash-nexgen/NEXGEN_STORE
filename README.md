@@ -7,4 +7,4 @@ For buying message me on :
 
 Email -    avinashs.nexgen@gmail.com
                        OR
-Discord -  "https://discord.gg/https://discord.gg/McZd9Czw"
+Discord -  https://discord.gg/AyRQvxRXKd
